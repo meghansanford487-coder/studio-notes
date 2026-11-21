@@ -1,0 +1,1 @@
+Weekly ops status updated 21 Nov 2026.
